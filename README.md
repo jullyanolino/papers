@@ -1,1 +1,1 @@
-Some papers written during courses or in free time
+Some papers written by me during as course assignments or in my free time.
